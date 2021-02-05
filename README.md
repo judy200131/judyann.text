@@ -1,2 +1,0 @@
-# judyann.text
-Judy ANN
